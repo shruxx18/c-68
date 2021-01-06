@@ -1,1 +1,1 @@
-On one of the usual gloomy but exciting days in hogwarts, harry ron and hermione were strolling past the great hall to go meet their dear giant friend hagrid.
+On one of the usual gloomy but exciting days in hogwarts, harry ron and hermione were strolling past the great hall to go meet their dear giant friend hagrid. They passes the forbidden forest and the lake reaching his small cottage.
